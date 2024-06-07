@@ -6,6 +6,6 @@ sofro pelo santos futebol clube e sou feliz com o real madrid, sou loira falsifi
 
 quero fazer faculdade de fisioterapia, na ufms ou unesp (se Deus quiser😉🙏) e se tudo der errado, eu viro esposa troféu #amomuitooooo
 
-se precisar de ajuda, entre em contato commigo por ese email 00001096304855sp@al.educacao.sp.gov.br
+se precisar de ajuda, entre em contato commigo por ese email📬: 00001096304855sp@al.educacao.sp.gov.br
 
 ![](https://media1.tenor.com/m/QtIquDDxQZMAAAAd/santos-santos-fc.gif)
